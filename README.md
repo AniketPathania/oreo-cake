@@ -1,3 +1,9 @@
+ingredients:-
+12 Oreo cookies                    1 teaspoon powdered sugar
+
+1/2 teaspoon baking powder         1 cup milk
+
+
 recipe for oreo cake:
 
 In a blender, crush the Oreo cookies to a fine powder. Now, add milk, sugar, baking powder and blend well. Adjust the quantity of milk in a way it is of pouring consistency.
